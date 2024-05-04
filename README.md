@@ -9,6 +9,8 @@ Beyond the mountains, the Mediterranean Sea stretches as far as the eye can see,
 Whether you choose to build a modern metropolis, create a prosperous industrial city, or preserve the natural beauty of the region, Monaco offers you an unlimited but challenging playground to realize your urban ambitions. Enjoy!
 
 
+
+
 Bienvenue à Monaco ! Vous vous retrouvez au cœur d'une région montagneuse surplombant la mer Méditerranée. Les majestueuses montagnes s'étendent le long de la côte, offrant des vues à couper le souffle sur la mer scintillant en contrebas.
 
 Les pentes escarpées et les sommets rocheux offrent des défis passionnants pour la construction de routes et d'infrastructures. Explorez les vallées et les crêtes pour trouver les meilleurs emplacements pour votre ville.
